@@ -6,3 +6,5 @@ And by opposing end them.
 
 To die -- to sleep, perchance to dream.
 Aye there's the rub.
+
+Holy crap that guide was unhelpful
